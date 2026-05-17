@@ -1,4 +1,4 @@
-# 
+# exclusive bot de negociação Bybit scripts é o melhor bot de negociação Bybit scripts com gestão de riscos e scalping. Seguro, confiável e otimizado para estratégias de negociação
 
 
 
